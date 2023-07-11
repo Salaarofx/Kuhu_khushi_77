@@ -27,7 +27,7 @@ Click Below Picture To Open VChat Bot Owner Id...
 [Kaali Linux](https://youtu.be/fFRxAG1mCVU)
 
 ## ⚒️ 𝐂𝐫𝐞𝐝𝐢𝐭
-[𝐁𝐢𝐤𝐚𝐬𝐡](https://t.me/King_salaar_ofx)
+[salaar](https://t.me/King_salaar_ofx)
 
 ## Telegram 🏪
 
@@ -39,7 +39,7 @@ Click Below Picture To Open VChat Bot Owner Id...
 #### 🥺 Copy Pasters You Can Copy This Repo But Must Give Credits ...
 
 ### 🌷 Owner Of This Repository 🇮🇳
-[![Bikash Halder](https://te.legra.ph/file/840fed0100164af249bb8.jpg)](https://t.me/King_salaar_ofx)
+[![salaar_ofx](https://te.legra.ph/file/840fed0100164af249bb8.jpg)](https://t.me/King_salaar_ofx)
 
 
 #### Main Developer = [Bikash](https://t.me/King_salaar_ofx)
