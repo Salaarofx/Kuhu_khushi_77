@@ -3,7 +3,7 @@ Best Smart Artificial intelligence Chat bot For Telegram Groups
 Click Below Picture To Open VChat Bot Owner Id...
 
 
-<p align="center"><a href="https://t.me/king_salaar_ofx"><img src="https://graph.org/file/364cb6a00bc52a30c6963.jpg"></a></p>
+<p align="center"><a href="https://t.me/Real_Avinash_Singh"><img src="https://graph.org/file/e2c5d546f145dbcf00f27.jpg"></a></p>
 
 
 
@@ -27,19 +27,19 @@ Click Below Picture To Open VChat Bot Owner Id...
 [Kaali Linux](https://youtu.be/fFRxAG1mCVU)
 
 ## ⚒️ 𝐂𝐫𝐞𝐝𝐢𝐭
-[salaar](https://t.me/King_salaar_ofx)
+[salaar](https:/t.me/Real_Avinash_Singh)
 
 ## Telegram 🏪
 
-[![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/BGT_Chat)
+[![Telegram Group](https://img.shields.io/badge/Telegram-Group-brightgreen)](https://t.me/alone789954)
 
-[![Telegram Channel](https://img.shields.io/badge/Telegram-Channel-brightgreen)](https://t.me/aboutsalaar_ofx)
+[![Telegram Channel](https://img.shields.io/badge/Telegram-Channel-brightgreen)](https://t.me/Secret_faction)
 
 
 #### 🥺 Copy Pasters You Can Copy This Repo But Must Give Credits ...
 
 ### 🌷 Owner Of This Repository 🇮🇳
-[![salaar_ofx](https://te.legra.ph/file/840fed0100164af249bb8.jpg)](https://t.me/King_salaar_ofx)
+[![salaar_ofx](https://graph.org/file/e2c5d546f145dbcf00f27.jpg)](https://t.me/King_salaar_ofx)
 
 
 #### Main Developer = [Bikash](https://t.me/King_salaar_ofx)
@@ -49,4 +49,4 @@ Click Below Picture To Open VChat Bot Owner Id...
 ✅ Vivek Halder Thanks For Fixed All Error Or Lovely Support 💕
 
 
-## 🥀 Powered By [ᴋʜᴜsʜɪ](https://t.me/King_salaar_ofx) & [ᴋʜᴜsʜɪ](https://t.me/selfish_sis25)
+## 🥀 Powered By [ᴋʜᴜsʜɪ](https://t.me/Mafiosoxt) & [ᴋʜᴜsʜɪ](https://t.me/Mafiosoxt)
